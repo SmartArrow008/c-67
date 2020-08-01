@@ -1,0 +1,2 @@
+**story**
+Once upn a time, in a forest, there lived a monkey who recided on a jamun tree, which was on the banks of a river. In the same forest, there lived a crocodile and his wife. Ote day, the crocodile came to the bamnks of the river, and rested under the tree. The kind hgeared monkey offered him sme fruits. The crocodile came back the nest day for more fruits, as he loved them. As days passed by, the crocodile and the monkey became good friends.
